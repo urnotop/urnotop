@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: just call +919160111856
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I wear glasses
+- ⚡ Fun fact: I wear glasses and I am 11 years old
 
 <!---
 urnotop/urnotop is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
