@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning coding obviously
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: just call +919160111856
-- 😄 Pronouns: ...
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: I wear glasses
 
 <!---
